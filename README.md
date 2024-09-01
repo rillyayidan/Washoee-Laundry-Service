@@ -1,2 +1,0 @@
-# Washoee-Laundry-Service
- 
